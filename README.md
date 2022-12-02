@@ -1,3 +1,3 @@
 # Discovery Lab - Rocket team 🚀
 
-Take a seat and explore the universe of the possible
+Take a seat and explore the universe of the possible.
